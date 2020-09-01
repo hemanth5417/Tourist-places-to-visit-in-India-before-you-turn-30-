@@ -1,0 +1,2 @@
+# Tourist-places-to-visit-in-India-before-you-turn-30-
+Travel while you’re still young. Lose yourself to find your own self. Live like there’s no tomorrow. And whatever you’ll explore today will last a lifetime with you. So, here’s a list of amazing tourist places to visit in India before you turn 30. What are you waiting for? It’s time to pack your bags and set on a journey to scratch off a few destinations from your bucket list.
